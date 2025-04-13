@@ -1,16 +1,7 @@
-## Hola 👋
+Soy un Compositor, Artista y diseñador de nivel Para SuperTux (En Especifico sobre diseño de nivel aunque no haga algo para el juego oficial lol)
+Tengo 13 años y mi voz parece uno de 8 ajajsdhjshaf
 
-Soy Vincent, soy uno de los miembros del Fandom De SuperTux. Hago Musica, Niveles, Mapas, etc
+Soy el creador oficial de SuperTux 0.8 Bodrio-Fanmade y Creador del Add-on The Giant Crossing (Mas Informacion de TGC en el Server oficial de SuperTux)
 
-Soy El Creador De SuperTux V0.8.0 Fanmade. Solo quiero pedirte una cosa, ¡RESPETAME Y NO ME INSULTES!
-Asi nos podemos ser amigos
-
-¿Te Interesas en conocerme por chat?
-¿Quieres Contactarme Privadamente?
-...¿Algo Mas?
-
-Unite a mi servidor de discord: https://discord.gg/hzHWQ6GEj3
-DM De Discord Para Contactos: vincentaraneo
-
-## Gracias Por Leer!
-![bsod_ball](https://github.com/user-attachments/assets/7382654b-bfd1-46b2-ac32-54150955323f)
+Okey no se que poner aqui eeehm... Aqui una milanesa jsjs
+![image](https://github.com/user-attachments/assets/06acff07-3e3f-4a8f-a683-648f17795238)
